@@ -1,5 +1,5 @@
 ## True Virtual Disk
 
-This is a place holder page to enable post on PH.
+This is a place holder page, main post on:
 
 email: lcsantosgm@gmail.com
